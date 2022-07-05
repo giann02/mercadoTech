@@ -1,12 +1,6 @@
 # mercadoTech
-<<<<<<< HEAD
-
 
 monica :tiger2:
-=======
-<<<<<<< HEAD
-
-gian panigatti 
-=======
+gian panigatti :blush:
 joacomoura:sunglasses: 
 bautista a :joy:
